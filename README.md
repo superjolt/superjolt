@@ -4,3 +4,6 @@ a 11 year old codes stupid html python and unity projects
 
 yes i do leetcode too
 https://leetcode.com/u/theJolt/
+
+
+CLASH ROYALE 🤑 🤑 🤑 🤑 99.99 DOLLARS FOR 1 BOOK OF BOOKS HALLELUJAH GREEDYCELL 🤩 🤩 🤩 🤩
