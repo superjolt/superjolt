@@ -1,5 +1,8 @@
 a 11 year old codes stupid html python and unity projects
 
+i make music
+https://soundcloud.com/jordan-leo-thottunkal
+
 (currently making a spotify ad blocker)
 
 yes i do leetcode too
