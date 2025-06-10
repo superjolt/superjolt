@@ -1,3 +1,6 @@
+## links
+https://scratch.mit.edu/users/superjolt/
+
 ## what i know
 C, python, html, css, js, react, unity, scratch
 
