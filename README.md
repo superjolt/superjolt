@@ -1,6 +1,3 @@
-## links
-https://scratch.mit.edu/users/superjolt/
-
 ## what i know
 HTML, CSS, JS, react, node, python, flutter, C, C#, scratch
 
